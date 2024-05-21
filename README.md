@@ -6,4 +6,7 @@ Meu nome é Vithor
 - Estou começando a aprender progamação
 - atualmente não tenho interesse em trabalhar na área
 
-![](https://tenor.com/pt-BR/view/anime-frieren-cold-freeze-frozen-gif-3761463736869033710)
+
+ 
+ 
+ ![](https://media1.tenor.com/m/SoEwkNSZshYAAAAC/anime-frieren.gif)
